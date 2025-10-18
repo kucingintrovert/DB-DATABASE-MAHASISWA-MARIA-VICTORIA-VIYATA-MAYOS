@@ -16,7 +16,9 @@ Garuda Blackhat Team
 ------And Thanks 4You------
 
 
-
+FOTO KELUARGA PELAKU BULLYING:
+1) https://g.top4top.io/p_3578sexfl1.jpg
+2) https://f.top4top.io/p_3578wwobz0.jpg
 ============DATA DITEMUKAN============
 NIK/Passport: 5171024205050008
 Phone: 6289514526275
